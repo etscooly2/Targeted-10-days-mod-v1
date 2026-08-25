@@ -4,3 +4,4 @@ this is a mod for the game Targeted 10 days the newly 200$ game which was recent
 
 
 this project or mod was mad by ai dont think that no
+its not a virus trust me i have other projects ;)
